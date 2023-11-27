@@ -8,3 +8,5 @@
 r41oliveira/r41oliveira is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+![r41oliveira1124Partilhar1700880520821](https://github.com/r41oliveira/r41oliveira/assets/149926152/88194f2c-27d8-44b0-bca0-f0e10613089a)
+![Order number(ETHU2311271354437961)1701064996614](https://github.com/r41oliveira/r41oliveira/assets/149926152/bb270889-a958-4630-b015-3ddbed626d4c)
